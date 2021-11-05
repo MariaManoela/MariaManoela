@@ -1,12 +1,4 @@
-### Hi! I'm Maria Manoela! 🌼
-
-Things I really like: 
-
-- Cats 😺
-- Reading 📚 
-- Yoga 🧘‍♀️
-- Playing games 🎮
-- Listening to music 🎵
+### Hi! I'm Maria Manoela!
 
 ##
 
